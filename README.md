@@ -1,7 +1,7 @@
 # Business Website 📝
 
 **Created by: Ammara | Web Designer & Automation Expert**  
-*Helping Brands Grow with AI-Powered Websites*
+*Helping Brands Grow with High Performing Websites*
 
 ---
 
